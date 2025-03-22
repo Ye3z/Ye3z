@@ -1,0 +1,2 @@
+- Hi, I’m @Ye3z 💫
+- Python ✨
